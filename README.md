@@ -1,0 +1,2 @@
+# premium-irish-flute-001-irish-flute-turning-tone-hol
+Tired of guessing tone hole positions on your Irish flute blanks? Stop wasting wood and time—your precise hole layout is just a click away.  This Notion template gives you a structured lab for every step of turning and hole drilling, with embedded calculations and checklists tailored to Irish flute geometry. Save hours of trial and error, and get c
